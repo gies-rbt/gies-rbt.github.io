@@ -1,1 +1,1 @@
-# gies-rbt.github.io
+# Gies Business and Research Technology
